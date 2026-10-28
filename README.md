@@ -24,7 +24,7 @@ Beyond technical research, I founded **Æ** as an embodiment of quiet luxury, cl
 * **LinkedIn:** [linkedin.com/in/ahmadeghbal](https://www.linkedin.com/in/ahmadeghbal)
 * **Instagram:** [@ahmedeghbal](https://www.instagram.com/ahmedeghbal)
 * **YouTube:** [@ahmad.eghbal](https://www.youtube.com/@ahmad.eghbal)
-* **X (Twitter):** [@ahmadeghbal1](https://x.com/ahmadeghbal1)
+* **X (Twitter):** [@ahmadeghbal1](https://x.com/ahmadeghball)
 
 ---
 > **احمد اقبال** | فارغ‌التحصیل کارشناسی ارشد مهندسی برق (قدرت) از دانشگاه شهید بهشتی تهران، پژوهشگر سیستم‌های قدرت و هوش مصنوعی، مدل استایل کلاسیک و بنیان‌گذار برند **Æ**.
